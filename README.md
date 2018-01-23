@@ -1,0 +1,7 @@
+# me
+===== LICENSE BEGIN =====
+66614-D30871T
+00002pKajekYF59OUE7kLQOOqVMcnt
+fw"svxI"m2"nEPsOOm"Q4OoM"tL3ZP
+gjw6ybGOGPcoZkRx6hTVf7!AbiAIwK
+===== LICENSE END =====
